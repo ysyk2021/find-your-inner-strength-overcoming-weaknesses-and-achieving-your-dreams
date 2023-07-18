@@ -1,7 +1,5 @@
 # Introduction
 
-Introduction
-
 We all have weaknesses that can hold us back from achieving our dreams. Whether it's self-doubt, fear of failure, or negative self-talk, these challenges can make it difficult to pursue our passions and reach our full potential.
 
 But what if we could tap into our inner strength and overcome these obstacles? What if we could cultivate resilience, confidence, and a positive mindset that would allow us to achieve our goals?
