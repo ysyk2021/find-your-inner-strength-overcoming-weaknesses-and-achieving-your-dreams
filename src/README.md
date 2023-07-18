@@ -10,5 +10,4 @@ In this book, we'll explore the root causes of personal weaknesses and provide p
 
 Ultimately, this book is about helping readers become the best version of themselves and achieve their wildest dreams. By using the insights and strategies outlined in this book, readers can begin to tap into their inner strength and take the necessary steps towards personal growth and success.
 
-
 MingHai Zheng is the founder of zhengpublishing.com and lives in Wuhan, China. His main publishing areas are business, management, self-help, computers and other emerging foreword fields.
