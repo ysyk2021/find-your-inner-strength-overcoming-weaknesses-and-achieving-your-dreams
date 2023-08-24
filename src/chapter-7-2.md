@@ -1,5 +1,3 @@
-Techniques for Cultivating Inner Strength
-==================================================================================================
 
 In chapter six, we'll explore techniques for cultivating inner strength towards achieving one's dreams. Inner strength is the foundation for personal growth and development, and it's essential for overcoming obstacles and achieving success.
 

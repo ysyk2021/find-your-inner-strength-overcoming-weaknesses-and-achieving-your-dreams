@@ -1,5 +1,3 @@
-Chapter 1: Identifying Personal Weaknesses
-==========================================
 
 In chapter one, we'll explore the importance of identifying personal weaknesses. We'll discuss techniques for identifying personal weaknesses and developing self-awareness about them. Finally, we'll explore how building a positive mindset towards personal weaknesses can help us turn them into strengths.
 

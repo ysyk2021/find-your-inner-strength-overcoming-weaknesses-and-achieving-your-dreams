@@ -1,5 +1,3 @@
-Building a Sense of Purpose and Meaning Through Leveraging Personal Strengths
-===============================================================================================================================
 
 In chapter four, we'll explore the importance of leveraging personal strengths to achieve goals. By identifying and utilizing personal strengths, individuals can build a sense of purpose and meaning towards achieving their dreams.
 

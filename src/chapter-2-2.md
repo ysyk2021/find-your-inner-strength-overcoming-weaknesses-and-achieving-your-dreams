@@ -1,5 +1,3 @@
-Techniques for Identifying Personal Weaknesses
-==========================================================================================
 
 In chapter one, we discussed the importance of identifying personal weaknesses. In this chapter, we'll explore techniques and strategies for identifying personal weaknesses.
 

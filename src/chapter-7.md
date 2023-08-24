@@ -1,5 +1,3 @@
-Chapter 6: Achieving Your Dreams Through Inner Strength
-=======================================================
 
 In chapter six, we'll explore how to achieve your dreams through inner strength. By cultivating inner strength, individuals can overcome obstacles and achieve their goals.
 

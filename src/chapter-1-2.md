@@ -1,4 +1,3 @@
-# What is Inner Strength?
 
 Inner strength is a powerful force that resides within each of us. It is the unwavering determination, resilience, and courage that enables individuals to overcome challenges and achieve their dreams. Often, it is during times of adversity that our inner strength shines brightest, propelling us forward on our journey towards personal growth and success.
 

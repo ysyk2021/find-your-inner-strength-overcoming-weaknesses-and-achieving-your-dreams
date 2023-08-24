@@ -1,5 +1,3 @@
-Techniques for Building Resilience and Adaptability
-====================================================================================================
 
 In chapter five, we discussed the importance of building resilience and adaptability in personal growth. In this chapter, we'll explore techniques for building resilience and adaptability.
 
