@@ -1,5 +1,4 @@
-Chapter 9: Building a Sense of Purpose and Meaning through Leveraging Personal Strengths
-========================================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In the pursuit of our dreams, it is essential to build a strong sense of purpose and meaning. By leveraging our personal strengths, we can align our goals with our values and create a fulfilling life. In this chapter, we will explore strategies to identify and harness our strengths to cultivate a sense of purpose and meaning.
 

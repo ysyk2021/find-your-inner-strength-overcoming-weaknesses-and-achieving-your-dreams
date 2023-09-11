@@ -1,5 +1,4 @@
-Chapter 10: Understanding the Root Causes of Personal Weaknesses
-================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In order to overcome personal weaknesses and achieve our dreams, it is crucial to understand the root causes behind them. By analyzing the underlying factors that contribute to our weaknesses, we can develop strategies to address them effectively. In this chapter, we will explore techniques for examining and understanding the root causes of personal weaknesses.
 

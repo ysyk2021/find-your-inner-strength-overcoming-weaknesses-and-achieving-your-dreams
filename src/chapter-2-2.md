@@ -1,5 +1,4 @@
-Chapter 3: Techniques for Identifying Personal Weaknesses
-=========================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In order to find your inner strength and overcome your weaknesses, it is crucial to first identify and understand them. This chapter will explore various techniques that can help you gain insight into your personal weaknesses. By utilizing these techniques, you can embark on a journey of self-discovery and personal growth.
 

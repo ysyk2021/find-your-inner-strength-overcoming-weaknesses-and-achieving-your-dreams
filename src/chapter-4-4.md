@@ -1,5 +1,4 @@
-Chapter 6: Building Confidence and Resilience through Overcoming Personal Weaknesses
-====================================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Building confidence and resilience are key factors in finding your inner strength and achieving your dreams. By addressing and overcoming personal weaknesses, you can develop a stronger sense of self-assurance and the ability to bounce back from setbacks. This chapter explores effective strategies for building confidence and resilience through the process of overcoming weaknesses.
 

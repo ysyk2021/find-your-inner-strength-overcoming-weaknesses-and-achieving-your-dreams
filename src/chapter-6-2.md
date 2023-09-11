@@ -1,5 +1,4 @@
-Chapter 12: Techniques for Building Resilience and Adaptability
-===============================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Building resilience and adaptability is crucial for overcoming weaknesses and achieving your dreams. In this chapter, we will explore various techniques that can help you develop these essential qualities. By mastering resilience and adaptability, you can better navigate challenges, bounce back from setbacks, and thrive in the pursuit of your goals.
 

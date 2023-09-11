@@ -1,5 +1,4 @@
-Chapter 9: Techniques for Cultivating Inner Strength
-====================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Cultivating inner strength is essential for overcoming weaknesses and achieving your dreams. It involves building resilience, harnessing your inner power, and developing a strong mindset. This chapter explores various techniques that can help you cultivate and enhance your inner strength.
 

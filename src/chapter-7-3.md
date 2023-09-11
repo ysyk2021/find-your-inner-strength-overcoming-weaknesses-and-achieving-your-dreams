@@ -1,5 +1,4 @@
-Chapter 9: Addressing Common Obstacles and Challenges in Achieving One's Dreams
-===============================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In the pursuit of our dreams, we inevitably encounter obstacles and challenges that can test our resolve and determination. This chapter delves into common obstacles that individuals face on their journey towards achieving their dreams and provides strategies to address them effectively.
 

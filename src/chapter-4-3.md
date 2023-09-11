@@ -1,5 +1,4 @@
-Chapter 8: Addressing Common Challenges in Strategy Implementation
-==================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Implementing a strategic plan is a critical step in overcoming weaknesses and achieving your dreams. However, it is not without its challenges. In this chapter, we will discuss some of the common hurdles that may arise during strategy implementation and explore effective ways to address them. By understanding and proactively managing these challenges, you can increase the likelihood of successful execution and ultimately reach your desired goals.
 
